@@ -10,7 +10,7 @@ Member Bonus
 Video Bonus
 If you haven’t signed up yet, now’s the perfect time to join!
 
-👉 Register on Diuwin Game
+👉 Register on Diuwin Game https://6diuwin.com/#/register?invitationCode=625131243294
 
 👉 Register on Diuwin Game
 
